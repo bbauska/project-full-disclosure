@@ -5,3 +5,5 @@ https://files.afu.se/Downloads/?dir=.%2FMagazines
 
 https://cufos.org/resources/research-projects/maxar.com
 
+https://www.et-cultures.com/blog
+
